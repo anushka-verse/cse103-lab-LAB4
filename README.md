@@ -21,5 +21,5 @@
 - Semester 1 lab projects and building daily problem-solving habits
 
 ## Connect With Me
-- LinkedIn: https://www.linkedin.com/in/anushka-malviya-b50a0b434?utm_source=share_via&utm_content=profile&utm_medium=member_android
+- LinkedIn: https://www.linkedin.com/in/anushka-malviya-b50a0b434/
 - Email: 2601010150@krmu.edu.in
